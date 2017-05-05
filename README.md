@@ -1,0 +1,2 @@
+# PROJECT-MANAGER-
+Targeting international Markets most of gulf based countries ,american house planing services and Indian building services engineering ,UK industries ,Australian hospitality and villas etc...  .   I got an award from goverment of kerala (india) in 2015  ."....Because i am  extreme ideologist to think or act differently...".  "I am good in delivering new concepts, processes and designs. interested serve the customers bye the way in advancing technologies in the industries".
